@@ -9,4 +9,4 @@
 ## Shoutout
 * Shoutout to my partner, Rebel! She has been working hard and supports me at every opportunity. She's the BEST.
 
-I'm also hungry. Today was rough, although I will definitely miss working with Julie once I no longer work at Kaiser.
+Today was rough, although I will definitely miss working with Julie once I no longer work at Kaiser.
